@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BatCountryShadowPuppet
+- 👀 I’m interested in cognitive neuroscience
+- 🌱 I’m currently learning how to analyze large datasets
+- 💞️ I’m looking to collaborate on innovative ideas that will affect the greater good
+- 📫 Email me at kmnewman@yorku.ca 
